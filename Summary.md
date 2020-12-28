@@ -78,3 +78,11 @@ The Director of Police went over and asked him if he had fired the shot. the sol
 
 <p. 3>
 
+Spina said he told the soldier: "Do you know what you just did? You have now created a state of hysteria. Every Guardsman up and down this street and every state policeman and every city policeman that is present thins that somebody just fired a shot and that it is probably a sniper."
+
+A short time later more "gunshots" were heard. Investigating, Spina came upon a Puerto Rican sitting on a wall. In reply to a question as to whether he knew "where the firing is coming from?" the main said:
+
+"That's no firing. That's fireworks. If you look up to the fourth floor, you will see the people who are throwing down these cherry bombs."
+
+By this time four truckloads of National Guardsmen had arrived and troopers and policemen were again crouched everywhere looking for a sniper. The Director of Police remained at the scene for three hours, and the only shot fired as the one by the Guardsman.
+
