@@ -8,7 +8,7 @@ Lyndon Baines Johnson
 Address to the Nation
 June 27, 1967
 
-## Foreward
+## Forward
 
 This report of the National Advisory Commission on Civil Disorders responds to Executive Order 11365, issued by President Lyndon B. Johsnon on July 29, 1967, and to the personal charge given to us by the President.
 
