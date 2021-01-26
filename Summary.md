@@ -76,8 +76,6 @@ Since everything appeared quiet and it was broad daylight, Spina walked directly
 
 The Director of Police went over and asked him if he had fired the shot. the soldier said yes, he had fired to scare a man away from a window; that his orders were to keep everyone away from windows.
 
-<p. 3>
-
 Spina said he told the soldier: "Do you know what you just did? You have now created a state of hysteria. Every Guardsman up and down this street and every state policeman and every city policeman that is present thins that somebody just fired a shot and that it is probably a sniper."
 
 A short time later more "gunshots" were heard. Investigating, Spina came upon a Puerto Rican sitting on a wall. In reply to a question as to whether he knew "where the firing is coming from?" the main said:
@@ -107,3 +105,34 @@ The police radio reported: "Looters, they have rifles." A patrol guard driven by
 When the riot broke out, the residents, through the block clubs, were able to organize quicly. Youngsters, agreeing to stay in the neighborhood, participated in detouring traffice. While many persons reportedly sympathized with the idea of a rebellion against the "system," only two small fires were set - one in an empty building.
 
 ---
+
+According to Lt. Gen. Throckmorton and Col. Bolling, the city, at this time, was saturated with fear. The National Guardsmen were afraid, the residents were afraid, and the police were afraid. Numerous persons, the majority of them Negroes, were being injured by gunshots of undetermined origin. The general and his staff felt that the major task of the troops was to reduce the fear and restore and air of normalcy.
+
+In order to accomplish this, every effort was made to establish contact and rapport between the troops and teh residents. The soldiers - 20 percent of whome were Negro - began helping to clean up the streets, collect garbage, and trace persons who had disappeared in the confusion. Residents in the neighborhoods responded with soup and sandwiches for the troops. In areas where the National Guard tried to establish rapport with the citizens, there was a smaller response.
+
+#### New Brunswick
+
+... A short time later, elements of teh crowd - an oler and rougher one than the night before - appeared in front of the police station. The participants wanted to see the mayor.
+
+Mayor [Patricia] Sheehan went out onto the steps of the station. Using a bullhorn, she talked to the people and asked that she be given an opportunity to correct conditions. The crowd was boiserous. Some persons challenged the mayor. But, finally, the opinion, "She's new! Ger her a chance!" prevailed.
+
+A demand was issued by people in the crowd that all persons arrested the previous night be released. Told that this already had been done, the people were suspicious. They asked to be allowed to inspect the jail cells.
+
+It was agreed to permit representatives of the people to look in the cells to satisfy themselves that everyone had been released. The crowd dispersed. The New Brunswick riot had failed to materialize.
+
+
+
+### Chapter 2 - Patterns of Disorder
+
+The "typical" riot did not take place. The disorders of 1967 were unusual, irregular, complex and unpredictable social processes. Like most human events, they did not unfold in an orderly sequence. However, an analysis of our survey information leads to some conclusions abou the riot process.
+
+In general:
+
+- The civil disorders of 1967 involved Negroes acting against local symbols of white American society, authority and property in Negro neighborhoods - rather than against white persons.
+- Of 164 disorders reported during the first nine months of 1967, eight (5 percent) were major in terms of violence and damage; 33 (20 percent) were serious but not major; 123 (75 percent) were minor and undoubtedly would not have received national attention as "riots" had the nation not been sensitized by the more serious outbreaks.
+- In the 75 disorders studied by a Senate subcommittee, 83 deaths were reported. Eighty-two percent of the deaths and more thn half the injuries occurred in Newark and Detroit. About 10 percent of the dead and 38 percent of the injured were public employees, primarily law officers and firemen. The overwhelming majority of the persons killed or injured in all the disorders were Negro civilians.
+- Initial damage estimates were greatly exaggerated. In Detroit, newspaper damage estimates at first ranged from $200 million to $500 million; the highest recent estimate is $45 million. In Neward, early estimates ranged from $15 to $25 million. A month later damage was estimated at $10.2 million, over 80 percent in inventory losses.
+
+In the 24 disorders in 23 cities which we surveyed:
+
+<page 6>
