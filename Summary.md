@@ -86,3 +86,24 @@ A short time later more "gunshots" were heard. Investigating, Spina came upon a 
 
 By this time four truckloads of National Guardsmen had arrived and troopers and policemen were again crouched everywhere looking for a sniper. The Director of Police remained at the scene for three hours, and the only shot fired as the one by the Guardsman.
 
+Nevertheless, at six o'clock that evening two columns of National Guardsmen and state troopers were directing mass fire at the Hayes Housing Project in response to what they believed were snipers...
+
+#### Detroit
+
+... A spirit of carefree nihilism was taking hold. to riot and destroy appeared more and more to become ends in themselves. Late Sunday afternoon it appeared to one observer that the young people were "dancing amidst the flames."
+
+A Negro plainclothes officer was standing at an intersection when a man threw a Molotov cocktail into a business establishment at the corner. In the heat of the afternoon, fanned by the 20 to 25 m.p.h. winds of both Sunday and Monday, the fire reached the home next door within minutes. As residents uselessly sprayed the flames with garden hoses, the fire jumped from roof to roof of adjancent two- and three-story buildings. Within the hour the entire block was in flames. The ninth house in the burning row belonged to the arsonist who had thrown the Molotov cocktail....
+
+---
+
+... Employed as a private guard, 55-year-old Julius L. Dorsey, a Negro, was standing in front of a market when accosted by two Negro men and a woman. They demanded he permit them to loot the market. He ignored their demands. They began to berate him. He asked a neighbor to call the police. As the argument grew more heated, Dorsey fired three shots from his pistol into the air.
+
+The police radio reported: "Looters, they have rifles." A patrol guard driven by a police officer and carrying three National Guardsmen arrived. As the looters fled, the law enforcement personnel opened fire. When the firing ceased, one person lay dead. He was Julius L. Dorsey...
+
+---
+
+... As the riot alternately waxed and waned, one area of the ghetto remained inuslated. On the northeast side the residents of some 150 square blocks inhabited by 21,000 persons had, in 1966, banded together in the Positive Neighborhood Action Committee (PNAC). With professional help from the Institute of Urban Dynamics, they had organized block clubs and made plans for the improvement of the neighborhood...
+
+When the riot broke out, the residents, through the block clubs, were able to organize quicly. Youngsters, agreeing to stay in the neighborhood, participated in detouring traffice. While many persons reportedly sympathized with the idea of a rebellion against the "system," only two small fires were set - one in an empty building.
+
+---
